@@ -1,2 +1,0 @@
-
-aicrypto-project-1
